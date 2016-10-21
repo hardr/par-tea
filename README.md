@@ -1,0 +1,1 @@
+Hi there, welcome to the Par-Tea! Please browse our offerings and enjoy a tea experience that is not sub-Par. Even though in golf that's a good thing, in life, for some reason, it means a bad thing. Same goes for par.. that's generally pretty damn good, but in life, it means average. Anyway, our passion is better than average tea... so let's Par-Tea!
